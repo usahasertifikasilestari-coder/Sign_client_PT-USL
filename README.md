@@ -1,4 +1,6 @@
 # Sign_client_PT-USL
+<img width="458" height="294" alt="logo_kan_terbaru_putih" src="https://github.com/user-attachments/assets/874176d8-d487-4f07-a6da-0a01776e67d6" />
+
 sign bellowed , certified world client UNDP and client Programme  palm oil . APAC Acreditations comite nation ( KAN = Komite akreditasi Nasional ) 
 Country|ISO APAC |Region
 -------|--------|------
