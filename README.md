@@ -1,4 +1,5 @@
-![Uploading Logo PT. Usaha Sertifikasi Lestari-1.png…]()
+<img width="1380" height="752" alt="Logo PT  Usaha Sertifikasi Lestari-1" src="https://github.com/user-attachments/assets/18173480-5269-4947-812f-6d7f6b7f5565" />
+
 
 # Sign_client_PT-USL
 <img width="458" height="294" alt="logo_kan_terbaru_putih" src="https://github.com/user-attachments/assets/874176d8-d487-4f07-a6da-0a01776e67d6" />
